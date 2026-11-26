@@ -1,1 +1,1 @@
-# B22_AI_Group_17
+# B22_IT_Group_17
